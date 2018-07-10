@@ -1,2 +1,0 @@
-# kamranjaved.github.io
-Allah
